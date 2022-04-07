@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @CoderSimple99
 - 👀 I’m interested in good coder's to partner with me
-
 - 📫 How to reach me add me on Discord 'Simple.#1267'
 
 <!---
